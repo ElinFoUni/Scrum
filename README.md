@@ -1,0 +1,2 @@
+# Scrum
+Scrum - individuell uppgift
